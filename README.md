@@ -1,5 +1,5 @@
-# Hello, i'm Neayl 
-I'm 16 years old and i'm in high school !
+# Hello, i'm Noann 
+I'm 17 years old and i'm in high school !
 
 # Projects 
 
