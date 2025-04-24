@@ -1,5 +1,5 @@
 # Hello, i'm Noann 
-I'm 17 years old and i'm in high school !
+I'm 19 years old and i'm in ESIEA (engineering school) !
 
 # Projects 
 
